@@ -1,4 +1,4 @@
-Hi there 👋 I'm Yuchen.
+Hi 👋 I'm Yuchen.
 
 ## ⌨️ Skills 
 
